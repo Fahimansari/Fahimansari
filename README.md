@@ -22,7 +22,7 @@
 
 📬 Let's Connect:
 - 🐦 Twitter: [fahim_pj](https://twitter.com/fahim_pj)
-- 💼 LinkedIn: [[Fahim P Ansari]](https://www.linkedin.com/in/fahim-a-8a016a9a/)
+- 💼 LinkedIn: [Fahim P Ansari](https://www.linkedin.com/in/fahim-a-8a016a9a/)
 
 🏞️ When I'm not coding or analyzing the markets, you can find me exploring the great outdoors, enjoying a good book, or sipping on a cup of coffee while brainstorming new ideas.
 
